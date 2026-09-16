@@ -6,15 +6,15 @@
   
    <p align="center"
 
-![](https://r6dacted.carrd.co/assets/images/image12.gif?v=c5632da6)
+![](https://r6dacted.carrd.co/assets/images/image07.png?v=21a00aa5)
  
   <p align="center"
 
- bloomy vivi,   bloom   vivian
+  Bloom     ,,  vv.    vivinvx.
 
    <p align="center"
 
-  info in links
+  multi   any   all.
 
    <br>
  
