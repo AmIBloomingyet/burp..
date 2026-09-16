@@ -10,11 +10,11 @@
  
   <p align="center"
 
-  Bloom     ,,  vv.    vivinvx.
+  $\color{#16F2F2}Bloom     ,,  vv.    vivinvx.$
 
    <p align="center"
 
-  multi   any   all.
+   $\color{#F28016}any  ,,  multi. him$
 
    <br>
  
